@@ -16,7 +16,7 @@ You can get many connections on linkedIn. with this simple steps  
 
 #### Help us by having this reposisterty star
 
-click on linkedin-increase-connection thn click on stare that's all
+click on sourav-biggboss > then find linkedin-increase-connection > left side click on star that's all
 
 
 #### Trust & Security
